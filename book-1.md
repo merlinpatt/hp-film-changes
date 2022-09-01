@@ -1,4 +1,15 @@
-# Deletrius!
+# Harry Potter and the Philosopher's Stone
+
+See the other books
+
+- [Chamber of Secrets](book-2.md)
+- [Prisoner of Azkaban](book-3.md)
+- [Goblet of Fire](book-4.md)
+- [Order of the Phoenix](book-5.md) (Unwritten)
+- [Half-Blood Prince](book-6.md) (Unwritten)
+- [Deathly Hallows](book-7.md) (Unwritten)
+
+## Deletrius!
 
 Major characters and events from the book not included in the movie:
 
@@ -16,7 +27,7 @@ Major characters and events from the book not included in the movie:
 - The centaurs Bane and Ronan.
 - "Hermione's Task:" the potion riddle Hermione solves to get Harry to the stone was cut, perhaps because it is not nearly as cinematic as Ron's chess task.
 
-# Serpensortia!
+## Serpensortia!
 
 Plotlines that were twisted in the transition to the screen:
 
@@ -24,13 +35,13 @@ Plotlines that were twisted in the transition to the screen:
 - The fourth person to get detention with Draco, Harry, and Hermione changes from Neville in the book to Ron in the movie, to suit this alteration.
 - McGonagall makes an Animagus transformation for her class in the first movie, but in the books, the students first see it in their third year.
 
-# Switching Spells
+## Switching Spells
 
 - The snake is from Brazil in the book, but bred in captivity but native to Burma in the movie.
 - Dudley and Aunt Petunia are described in the books as blonde, but are dark-haired in the movie.
 - Harry's parents look quite a bit older than they should. They were about 22 when they died, but in the film they look like they're in their mid-thirties at least.
 
-# Conjuring spells 
+## Conjuring spells 
 
 Additions to the movie without direct canon backing:
 
