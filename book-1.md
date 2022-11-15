@@ -10,6 +10,11 @@ See the other books
 - [Half-Blood Prince](book-6.md) (Unwritten)
 - [Deathly Hallows](book-7.md) (Unwritten)
 
+
+Source:
+  - [HP Lexicon - Internet Archive](https://web.archive.org/web/20031220160234/http://www.hp-lexicon.org/film1_changes.html)
+  - [HP Lexicon - Scanned Printing](book-1.pdf)
+
 ## Deletrius!
 
 Major characters and events from the book not included in the movie:
