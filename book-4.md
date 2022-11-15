@@ -252,13 +252,9 @@ the seiection of champions. See also Conjuring Spells.
 - Seamus Finnigan rather than Neville is depicted as being accident-prone, though with a different flavour (he says he thinks fire is pretty fascinating, rather than being depressed by his difficulties).
 - The golden egg is small enough to be held easily in one hand, and doesn't appear empty when open and singing.
 - Placing Padma Patil in Gryffindor with her sister (she's in Gryffindor common room with her sister rather than her sister being with Lavender Brown when Harry thinks of asking them), and the fact that both sisters wear pink to the Yule Ball instead of one wearing pink and the other turquoise.
-- Hermione wears pink to the Yule Bull rather than bluc as in the book, (The pink was
-worn by Pansy Parkinson, Draco Malfoy's in the book.)
-- Cedric'sglue isn't given immediately after the Yule Ball; he waits until two days before
-the second task.
-- Hurry's drearn (GF29) takes place at night after the Yule Ball rather than in Divination
-shortly befotc tbc third and is more confused rtemory Of the first dream than a
-vision.
+- Hermione wears pink to the Yule Bull rather than blue as in the book. (The pink was worn by Pansy Parkinson, Draco Malfoy's date, in the book.)
+- Cedric's clue isn't given immediately after the Yule Ball; he waits until two days before the second task.
+- Harry's dream (GF29) takes place at night after the Yule Ball rather than in Divination shortly before the third task, and is more confused memory of the first dream than a vision.
 - mermaid in the prefects' bathroom is part ofa stained glass •vvindow rather than a
 portrait, and she's awake during Harry's visit.
 
