@@ -13,6 +13,9 @@ See the other books
 
 Source: HP Lexicon - Printed before it was removed. No Internet Archive Page exists.
 
+Source:
+  - [HP Lexicon - Scanned Printing](book-3.pdf). Printed before it was removed. No Internet Archive Page exists.
+
 ## Deletrius!
 
 Major characters and events from the book not included in the movie:
