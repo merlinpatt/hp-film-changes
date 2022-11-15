@@ -87,94 +87,40 @@ broomsticks.
 - The Hognuts students watch the arrival of their guests from the windows of the Great Hall on the first day of term rather than from out on the grounds just before Halloween as in the book.
 - The students from Beauxbatons are introduced as "ladies", implying that there are no boys among them, although al least two Beauxbatons boys werc present in GF23.
 - The dancing and other seductive behaviours of the Veela from the World Cup from the book are transposed to the Beauxbatons students upon their arrival at Hogwarts.
-- Hagrid becoming so distracted by Madame Maxime when she first speaks to him at the high table that he stabs Professor Flitwick in the hand with fork. (In the book, Madame Maxime spoke of the care and handling of the winged horses to
-Dumbledore when Hagrid was not present.)
-
-- To demonstrate his ability to see ouL of the back ofhis head during his first class, the fake
-Moody chastises Seamus Finnigan fot sticking chewing gun under his desk rather than
-Lavender holding her horoscope under her 10 show to Parvati Palil,
-- 'lhe fake Moody's apparent amusement at thc behaviour of the spider under the Imperius
-Curse in the hook, he took the demonstration seriously throughout. (Also, in the book
-the spider remained his desk ragher than being bounced off the students only the last
-spider in the book looked like it might roll off the desk and hit a smdent)'
-- the film, Hermione refuses to name the last tJnforgivable Curse rather than stating tbc
-incantation as in the vuso, in the book she and the boys sought out Neville 10 see if
-was all right rather than running into him as in tbc film,
-- Weasley t'"ins getting into a fist fight uhen their trick lüils to work, and the absence
-of their friend Lee Jordan from their planning.
-- speech after the selection of the firsl three champions emphasizes the
-competition rather than the unifring aspects the situation.
-- Dumbledore's rude remarks to Madame Maxime in response to her protest about Harrys
-selection, and his subsequgnl accusatory and th:eatening behaviour toward Harry.
-- Crouch senior's statement that the Goblet of Fire itself constitutes a binding magical
-contract. (In fact, thep/uejng ofa name within it is vo'hat constituncs thc binding magical
-contract* not the artilåct itsclf„)
-- Sirius sends his first reply 10 Harry nol via Hedwig but by another owl. (The reluctance to
-use Iledwig becausc of her distinctive appearance is canon. though.)
-- 'Ilme depiction of fire talking as a faec formed front the eoals of the rather than a
-disembodied normal-looking head being visible in the
-- POTTER STINKS badges appear in the film after the dragons' first appearance
-rather than before.
-- Rather thau finding out about the dragons only during the first task, he finds out
-before Ilarry does and nevenheless refuses to reconcile with I Iarry umlil after the first
-task, which gives their falling out. a much nastier aspect than in canon, (Also, in the book
-llarry found out about the dragons befo»e speaking with Sirius, aftenva.rd).
-- Ilarcy openly walks up to Cedric and asks for word rather than arranging to speak to
-him more privately,
-- ferret incident happens outdoors after the revelation of the dragons rather than in the
-Entrance Hall before the fourth years' first Defence Against the Dark Arts lesson Of the
-Also. the incident blows up not of the Prophej's covcragc of the Arthurs
-covcrup of Moody's involvement with the police and Harry's counterattack about Draco's
-mother, but more from general stress.
-- The reference about knowing stories about a Death Eater that •would makc someone's hair
-curl is transferred from Rita Skeeter speak"ng to HRII to the fake Moody yelling at Draeo
-(who runs away rather than being hauled before Snape).
-- Hermione sneaking up to the champions' tent just before the first task for an eneotuaging
-word and a hug. rather than drilling Harry in the Summoning Charm all night beforehand.
-This leads to developing Krum a little more, when he tells off Skeeter after her
-subsequent photograph-taking ambush,
-- waiting until after 'he's attacked by Horntail to Surnmon his broom
-
-- I'he breaking of the Horntail's chain and her pursuit of Viaryr This tics in 'åith the
-elimination or the teal eggs from the in the book she not as nesting mother
-would have them unprotected.
-- McGonagall neglecting to tell Vlany Ihal champions open the dancing, and that he has
-no choice bug 10 ask someone out.
-- Berrnione's quarrel with Ron after the dancing doesn't end with her leaving the seetu: on a
-high note, but with him leaving,
-- The fake Moody than the Weasley twins collects Ron and Henniorae before the
-second task. A.s part Of utiling out the role, he ensures thal Neville is
-together with Hany at that point to reveal thc propcfiies of Gillywecd.
-- Fleur doesn"l fight to tetu,m to the in the second
-- Cauch seniot's. appearance at the second task. his talk ahout having no family, and his
-meeting with the fake Moody.
-- Crouch senior is simply found dead in the forest rather than disappearing, and the
-discovery of the hody is presented differently. Somc of content of Fudge's
-disagreement with Dumbledore is moved to their tneeting at this point in the Story.
-- Harry has no trouble getting into Dumbledore's office. although there is still a mention of
-- All the trials in the Pensicve are compressed into a single trial. Karkaroff gives up Crouch
-junior's name along with the others; no Dementors appear to be guarding him.
-- Snape and Karkm•off meeting privately rather than Potions.
-- Snape's reference to Voldemort as rather than "'the Dark Lord" (which
-is the form he nonnally uses in referring to the man).
-- It's openly revealed bctorc the third task that the fake Moody placed the eup in the maze,
-urid its location. is not necessarily the center ofthe as in the book, Also, it's said that
-first to touch the Clip will be '"the winner" rather then merely •treeciving full
-paints".
-- Harw actually finds Fleur in the rather than just hearing her. Hc also recognizes
-(hai Krum is bgvhnvtched> and gets into a shoving match and footrace Wilh Cedric.
-who-saved-who stakes are a bit less balanced between them in the film than in the book.
-- Harry and CédriC have much in the graveyard in
-the in the film, they eouldive escaped if Cedric had done •what Harry said when he
-said it.
-- the book, ordinary eoniured ropcs were to bind blatty rather than an
-statue, (Looks cool, though.)
-- Pettigrew's incantation in the film dillVrs somewhat from thal in canon, he cuts Harry
-more than and doesn't seem as badly affect,ed physiealiy by his 0',vTt sacrifice as in
-the book.
-The subsequent pyrotechnics were an added flourish for Lhe film Note that Voldemort in
-the film does not have to ask for robes after his rebirth; they appear by themselves.
-- Voldemort using the expressions "attaboy"' and "yedh" rather than keeping to mote
+- Hagrid becoming so distracted by Madame Maxime when she first speaks to him at the high table that he stabs Professor Flitwick in the hand with fork. (In the book, Madame Maxime spoke of the care and handling of the winged horses to Dumbledore when Hagrid was not present.)
+- To demonstrate his ability to see out of the back of his head during his first class, the fake Moody chastises Seamus Finnigan for sticking chewing gum under his desk rather than Lavender Brown for holding her horoscope under her desk to show to Parvati Patil.
+- The fake Moody's apparent amusement at thc behaviour of the spider under the Imperius Curse - in the book, he took the demonstration seriously throughout. (Also, in the book the spider remained on his desk rather than being bounced off the students - only the last spider in the book looked like it might roll off the desk and hit a student).
+- In the film, Hermione refuses to name the last Unforgivable Curse rather than stating the incantation as in the book. Also, in the book she and the boys sought out Neville to see if he was all right rather than running into him as in the film.
+- The Weasley twins getting into a fist fight uhen their trick fails to work, and the absence of their friend Lee Jordan from their planning.
+- Dumbledore's speech after the selection of the first three champions emphasizes the competition rather than the unifying aspects the situation.
+- Dumbledore's rude remarks to Madame Maxime in response to her protest about Harry's selection, and his subsequent accusatory and threatening behaviour toward Harry.
+- Crouch senior's statement that the Goblet of Fire itself constitutes a binding magical contract. (In fact, the placing ofa name within it is what constitutes the binding magical contract, not the artilåct itsclf„)
+- Sirius sends his first reply to Harry not via Hedwig but by another owl. (The reluctance to use Hedwig because of her distinctive appearance is canon. though.)
+- The depiction of fire talking as a face formed front the coals of the rather than a disembodied normal-looking head being visible in the flames.
+- The POTTER STINKS badges appear in the film after the dragons' first appearance rather than before.
+- Rather than Ron finding out about the dragons only during the first task, he finds out before Harry does and nevertheless still refuses to reconcile with Harry until after the first task, which gives their falling out a much nastier aspect than in canon. (Also, in the book Harry found out about the dragons before speaking with Sirius, not afterward).
+- Harry openly walks up to Cedric and asks for a word rather than arranging to speak to him more privately.
+- The ferret incident happens outdoors after the revelation of the dragons rather than in the Entrance Hall before the fourth years' first Defence Against the Dark Arts lesson of the term. Also, the incident blows up not because of the Prophet's coverage of Arthur's coverup of Moody's involvement with the police and Harry's counterattack about Draco's mother, but more from general stress.
+- The reference about knowing stories about a Death Eater that would make someone's hair curl is transferred from Rita Skeeter speaking to HRH to the fake Moody yelling at Draco (who runs away rather than being hauled before Snape).
+- Hermione sneaking up to the champions' tent just before the first task for an encouraging word and a hug, rather than drilling Harry in the Summoning Charm all night beforehand. This leads to developing Krum a little more, when he tells off Rita Skeeter after her subsequent photograph-taking ambush.
+- Harry waiting until after he's attacked by Horntail to Summon his broom.
+- The breaking of the Horntail's chain and her pursuit of Harry. This ties in with the elimination of the real eggs from the plot; in the book she would not as a nesting mother have left them unprotected.
+- McGonagall neglecting to tell Harry that champions open the dancing, and that he has no choice but to ask someone out.
+- Hermione's quarrel with Ron after the dancing doesn't end with her leaving the scene on a high note, but with him leaving.
+- The fake Moody rather than the Weasley twins collects Ron and Hermione before the second task. As part of writing out the house-elves' role, he ensures that Neville is thrown together with Harry at that point to reveal the properties of Gillyweed.
+- Fleur doesn't fight to return to the water in the second task.
+- Crouch senior's appearance at the second task, his talk ahout having no family, and his meeting with the fake Moody.
+- Crouch senior is simply found dead in the forest rather than disappearing, and the discovery of the body is presented differently. Some of the content of Fudge's disagreement with Dumbledore is moved to their meeting at this point in the story.
+- Harry has no trouble getting into Dumbledore's office, although there is still a mention of candy.
+- All the trials in the Pensieve are compressed into a single trial. Karkaroff gives up Crouch junior's name along with the others; no Dementors appear to be guarding him.
+- Snape and Karkaroff meeting privately rather than after Potions.
+- Snape's reference to Voldemort as "You-Know-Who" rather than "the Dark Lord" (which is the form he normally uses in referring to the man).
+- It's openly revealed before the third task that the fake Moody placed the cup in the maze, and its location is not necessarily the center of the maze as in the book. Also, it's said that the first person to touch the cup will be "the winner" rather than merely "receiving full points".
+- Harry actually finds Fleur in the maze rather than just hearing her. He also recognizes that Krum is bewitched, and gets into a shoving match and footrace with Cedric. The who-saved-who stakes are a bit less balanced between them in the film than in the book.
+- Harry and Cedric have much more time to react to the situation in the graveyard than in the book; in the film, they could've escaped if Cedric had done what Harry said when he said it.
+- In the book, ordinary conjured ropes were used to bind Harry rather than an animated statue. (Looks cool, though.)
+- Pettigrew's incantation in the film differs somewhat from that in canon, he cuts Harry more than once, and doesn't seem as badly affected physically by his own sacrifice as in the book. The subsequent pyrotechnics were an added flourish for the film. Note that Voldemort in the film does not have to ask for robes after his rebirth; they appear by themselves.
+- Voldemort using the expressions "attaboy"' and "yeah" rather than keeping to more speech.
 - Harry breaks down after returning with Cedric's body rather than being unable to cry, and is not hustled away before Amos Diggory arrives and breaks down.
 - The fake Moody's Polyjuice Potion begins to wear off while he's still talking to Harry; he is never knocked unconscious, nor is he given the Dementor's Kiss due to Fudge's interference.  The real Moody is also conscious when he is found in the trunk (and nobody hops in to make him more comfortable until he can be transferred to the hospital wing).
 
@@ -201,8 +147,7 @@ the seiection of champions. See also Conjuring Spells.
 - Hermione wears pink to the Yule Bull rather than blue as in the book. (The pink was worn by Pansy Parkinson, Draco Malfoy's date, in the book.)
 - Cedric's clue isn't given immediately after the Yule Ball; he waits until two days before the second task.
 - Harry's dream (GF29) takes place at night after the Yule Ball rather than in Divination shortly before the third task, and is more confused memory of the first dream than a vision.
-- mermaid in the prefects' bathroom is part ofa stained glass •vvindow rather than a
-portrait, and she's awake during Harry's visit.
+- The mermaid in the prefects' bathroom is part of a stained glass window rather than a portrait, and she's awake during Harry's visit.
 
 
 ## Conjuring spells 
