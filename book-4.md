@@ -62,27 +62,13 @@ Major characters and events from the book not included in the movie:
 
 Plotlines that were twisted in the transition to the screen:
 
-- Crouch junior is not only already free but present in the opening scene at the
-Riddle I'louse„ Ile is instructed gather their "old comrades* by sending them a signs
-rather than casting Morsmorchv bccausc of his own angry impulse to terrify them. llan•y
-subsequently recognizes him after the Pensicve visions although in the book he had never
-seen him as himself before, in vision Ot reality-
-- Harry's first nightmare about events at the Riddle House takes place at the Burrow. since
-the initial Privet Drive scenes wet* omitted. He wakes up with standing over
-him, the order of their arrival having bccn reversed. in the Hermione artived at the
-Burrow the afternoon before J lart•y did, but in the film she says that she arrived in the
-night (apparently after the boys went to bed, sinec Harry didnitknow she'd arrived).
-- Arthur Weasley. when asked theyire going when en to the World Cup, says
-that he doesnt have the foggiest idea, radler than explaining how hard the Ministry had to
-work to make the arrangements.
-- The entire explanation of Portkeys is compresscd to the introduction ofthe (erm by the
-twins Cather than Arthur with an u•eompanying explanation as in the book), and Harry as
-result nearly fails to grab hold when the time comes.
+- Crouch junior is not only already free but present in the opening scene at the Riddle House. He is instructed to gather their "old comrades" by sending them a sign, rather than casting Morsmordre because of his own angry impulse to terrify them. Harry subsequently recognizes him after the Pensieve visions although in the book he had never seen him as himself before, in vision or reality.
+- Harry's first nightmare about events at the Riddle House takes place at the Burrow, since the initial Privet Drive scenes were omitted. He wakes up with Hermione standing over him, the order of their arrival having been reversed. In the book, Hermione arrived at the Burrow the afternoon before Harry did, but in the film she says that she arrived in the night (apparently after the boys went to bed, sinec Harry didn't know she'd arrived).
+- Arthur Weasley, when asked where they're going when en route to the World Cup, says that he doesnt have the foggiest idea, rather than explaining how hard the Ministry had to work to make the arrangements.
+- The entire explanation of Portkeys is compressed to the introduction of the term by the twins (rather than Arthur with an accompanying explanation as in the book), and Harry as result nearly fails to grab hold when the time comes.
 - The way the first Portkcy works in the film doesnit tally with its description in the book
-  - o Elhose using thc Ponkey are shown talking to one anoihef (though briefly) in
-transit
-  - The older members orthe party are shown flying through the air upon their arrival
-at the Portkey tenninus tather than simply arriving.
+  - Those using the Portkey are shown talking to one another (though briefly) in transit
+  - The older members of the party are shown flying through the air upon their arrival at the Portkey terninus rather than simply arriving.
 - upon their anåvat at the World Cup campground, there are several people flying openly
 on broomsticks (00 name one instance of open magic), rather than Ministry officials
 fussing over signs of magic as children barely hovering above the grass on toy
@@ -205,13 +191,8 @@ the book.
 The subsequent pyrotechnics were an added flourish for Lhe film Note that Voldemort in
 the film does not have to ask for robes after his rebirth; they appear by themselves.
 - Voldemort using the expressions "attaboy"' and "yedh" rather than keeping to mote
-- Jlarry breaks down after returning with Cedric's body ralhef than heing unable to cm and
-is not hustled away before Amos Diggory arrives and hraks down.
-- fake Moody's Polyiuicc Potion begins to wear off while he's still talking to Harry; he
-is never kanocked unconscious, nor is he given the Dementofs Kiss due to
-interference The real Moody is also conscious when hc is found in the trunk (and nobody
-hops in to make him n:jore comfortable until he can be transferred to the hospital wing).
-
+- Harry breaks down after returning with Cedric's body rather than being unable to cry, and is not hustled away before Amos Diggory arrives and breaks down.
+- The fake Moody's Polyjuice Potion begins to wear off while he's still talking to Harry; he is never knocked unconscious, nor is he given the Dementor's Kiss due to Fudge's interference.  The real Moody is also conscious when he is found in the trunk (and nobody hops in to make him more comfortable until he can be transferred to the hospital wing).
 
 
 ## Switching Spells
