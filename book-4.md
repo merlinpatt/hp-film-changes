@@ -13,3 +13,21 @@ See the other books
 
 Source:
   - [HP Lexicon - Scanned Printing](book-4.pdf). Printed before it was removed. No Internet Archive Page exists.
+
+
+## Deletrius!
+
+Major characters and events from the book not included in the movie:
+
+
+## Serpensortia!
+
+Plotlines that were twisted in the transition to the screen:
+
+
+## Switching Spells
+
+
+## Conjuring spells 
+
+Additions to the movie without direct canon backing:
