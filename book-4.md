@@ -20,62 +20,43 @@ Source:
 Major characters and events from the book not included in the movie:
 
 - Frank Bryce's history.
-- Ham/s initial scenes on Privet Drive and anival at the Sce Serpensortia.
+- Harry's initial scenes on Privet Drive and arrival at the Burrow. See Serpensortia.
 - Weasleys' Wizard Wheezes.
-- role.
-- Pigwidgeonm
-- Several Weasleys.
-  - Molly Wcaslgy's role, including her introductionofihe Summoning Charm,
-  - CharlWs role is reduced to onc mention t foretbe first task; Ite is not present at
-the World Cup, See also Serpensortia.
-  - Bill's role, including his presence at the World Cup and his first encounter with
-Fleur, See also Serpensortia.
-  - Percy's role, including any mention Of his new jab as Crow-h seniors assistant and
-his hero worship his boss. He is not present at the World Cupr See also
-Bertha Jotkjns.
-- e None of CedrWs role in the previous year's Quidditcb season (which led to the Weaslcy
-boys' eoolness toward Cedric in the book as one of the architects of their only defeat) is
-referred to when C:edtic is first introduced,
-- Checking in with Ministry officials upon arrival at the World Cup.
+- The Dursleys' role.
+- Pigwidgeon.
+- Several Weasleys, including.
+  - Molly Weasley's role, including her introduction of the Summoning Charm.
+  - Charlie's role is reduced to one mention before the first task; he is not present at the World Cup. See also Serpensortia.
+  - Bill's role, including his presence at the World Cup and his first encounter with Fleur. See also Serpensortia.
+  - Percy's role, including any mention Of his new jab as Crouchh senior's assistant and his hero worship of his boss. He is not present at the World Cup. See also Serpensortia.
+- Bertha Jorkins.
+- None of Cedric's role in the previous year's Quidditch season (which led to the Weasley boys' coolness toward Cedric in the book as one of the architects of their only defeat) is referred to when C:edtic is first introduced.
+- Checking in first with Ministry officials upon arrival at the World Cup.
 - The Roberts family's role.
-- Arthufs running commentary on passing Ministry officials prior to the World Cup,
-including llanyig introduction to Crouch scnior and Ludo Bagman as shown in the book,
-- Ludo Bagman, including the twins' bet with him outcome of the World Cup. rest of
-Bagman's role as a judgc istransferred to Crouch senior. The Imperius Curse gvidently
-isn•t involved.
-- HRH's walk through the campgrounds to get prior to the match. Which included
-their first encounters in lhe Story Cho and the other Gryllindor boys in their year as
-well Krum's fame among Quiddiich fans -me Gryffindor boys' meeting on the
-Hogwarts Expæss at the beginning of the year was also eutr
-- Narcissa Maltoys role.
-- The souvenirs, mascots, and lepnøchaun gold at the World Cup, as v.ell as the actual
-World Cup malch.
-- The house-elves' role, Winky. and S-P.E.W. See Switching Spells,
-- The theft of Harry's wand and the explanation of Prior (Even after the duel itis
-not expiaincd. just named.)
-- The week at the Burrow after the match, including the introduction of fire talking and
-Arthur's efforts to keep MadeEye Moody from being arrested.
-- The slrewts and the dragon eggs.
-- The fake Moody's Engorgement Charm's for the second and third spiders in the
-demonstrations during his first
-- The Creevey hmthets' rolew
-- point.' totals in the Trib'åza.rd Tournament and the canon obstacles ofthc third task
-- Sirius Black, aceording {o Gary OldJttan (wbo plays him) has a tiny, linylitllepurf
-i" next one (Goblej of Fire), J'mjust embers in iheJire, "i' All his appearances but his
-lire call were written out of the
-- All the Hogsmeade visits euta Some of the background Supplied by Sirius during
-GF27 in the book was moved to his fire call to Harry instead,
-- All the lessons for all classes, See Serpensortia.
-- Snape and Karkaroffmecting at the ball (that was in the deleted seenes, though).
-- Hagrid's quarrel with Madame Maximo and the scandal about his background.
+- Arthur's running commentary on passing Ministry officials prior to the World Cup, including Harry's introduction to Crouch senior and Ludo Bagman as shown in the book.
+- Ludo Bagman, including the twins' bet with him on the outcome of the World Cup. The rest of Bagman's role as a judge istransferred to Crouch senior. The Imperius Curse evidently isn't involved.
+- HRH's walk through the campgrounds to get water prior to the match, which included their first encounters in the story with Cho and the other Gryffindor boys in their year as well as Krum's fame among Quiddiich fans. The Gryffindor boys' meeting on the Hogwarts Expæss at the beginning of the year was also cut.
+- Narcissa Malfoy's role.
+- The souvenirs, mascots, and lepnøchaun gold at the World Cup, as well as the actual World Cup match.
+- The house-elves' role, Winky. and S.P.E.W. See Switching Spells,
+- The theft of Harry's wand and the explanation of Priori Icantato. (Even after the duel it's not expiained, just named.)
+- The week at the Burrow after the match, including the introduction of fire talking and Arthur's efforts to keep Mad-Eye Moody from being arrested.
+- The skrewts and the dragon eggs.
+- The fake Moody's Engorgement Charm's for the second and third spiders in the demonstrations during his first class.
+- The Creevey brothers' role.
+- The points totals in the Triwizard Tournament and the canon obstacles of the third task.
+- Sirius Black, according to Gary Oldman (wbo plays him) has "just a tiny, tiny little part in the next one (Goblet of Fire), I'm just embers in the fire." All his appearances but his fire call were written out of the film.
+- All the Hogsmeade visits were cut. Some of the background supplied by Sirius during GF27 in the book was moved to his fire call to Harry instead.
+- All the lessons for all classes. See Serpensortia.
+- Snape and Karkaroff meeting at the ball (that was in the deleted scenes, though).
+- Hagrid's quarrel with Madame Maxime and the scandal about his background.
 - Rita Skeeter's status as an unregistered Animagus.
-- Krum's jealousy of lian•y•
-- Amos Diggo&s Prophé/-inspired hostility toward Harry,
-- Bellatrix Lestrunge,
-- The Death Eaters' pursuit of Hatry through the graveyard.
-- Fudgevs reaction to Voldemort's return, and Dunabledore's subsequent recall Of the Order
-of the Phoenix and orders to Snnpe. See Serpensortia.
-- The end Of year journey on the Ilogwarts Express,
+- Krum's jealousy of Harry.
+- Amos Diggory's Prophet-inspired hostility toward Harry.
+- Bellatrix Lestrunge.
+- The Death Eaters' pursuit of Harry through the graveyard.
+- Fudge's reaction to Voldemort's return, and Dunabledore's subsequent recall of the Order of the Phoenix and orders to Snnpe. See Serpensortia.
+- The end of year journey on the Hogwarts Express.
 
 ## Serpensortia!
 
