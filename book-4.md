@@ -69,44 +69,27 @@ Plotlines that were twisted in the transition to the screen:
 - The way the first Portkcy works in the film doesnit tally with its description in the book
   - Those using the Portkey are shown talking to one another (though briefly) in transit
   - The older members of the party are shown flying through the air upon their arrival at the Portkey terninus rather than simply arriving.
-- upon their anåvat at the World Cup campground, there are several people flying openly
-on broomsticks (00 name one instance of open magic), rather than Ministry officials
+- Upon their arrival at the World Cup campground, there are several people flying openly
+on broomsticks (to name one instance of open magic), rather than Ministry officials
 fussing over signs of magic as children barely hovering above the grass on toy
-broornsticks.
-- The Wcasleys' (a single one rather than o pair as in the book) has already been set up
-Iteforc their arrival, rather than the party having to set it up themselves.
-- 'l'he are not in the top box with Fudge and Malfoys in the film
-- Ginny rather than Ilermione Or Harry asks '.vho Krum is be lakes the field at
-the World Cup.
-- The players rather than the mascots perform the prc-match entertainment at the World
-Cup, Tbc Irish side displays a. glittering, animated leprechaun image in the sky rather than
-glittering shamrock fom.ed by leprechauns as in the book,
-- Fudge than Bagman gives the speech the World Cup,
-- Since Bill. Charlie, and the World Cup, Arthurdoesnt suggest that the
-older members of' the family help the Ministry ugninst the Death Eaters, hut instead tries
-to get them all to a Pottkey to get out right away.
-- Harry is separated from the entire party knocked out during the post-match riot; his
-wand is never stolen.
-- Molly giving the boys their new dress robes. Insæad.Ron receives his by post
-(apparently not even owl post),
-- article about the riot is introduced by a copy being read by Hermione on the
-Ilogwarts Express rathet than by Molly on the rnoming after the match.
-- Cho is first encountered in the story on the Ttogwarts Express rather than on the World
-Cup campgrounds,
-- Harry writes the first letter to Sirius only aftct the riot and prodding by Hermione, rather
-immediately after his initiativcx Consequeatly
-I redwig is with him on the Hogwarts Express rather than off delivcring his letter,
-- The Hognuts students watch arrival of thetr guests the windows of the Great
-Hall on the first day Of term rather than from out on the grounds just Hallos.ve!elt as
-in the book.
-- The students from Beauxbatons are introduced implying that there are no
-boys among them, although al least two Beauxbatons boys werc present in GF23.
-- dancing and other seductive behaviours of the Veelafrom the World Cup from the
-book are transposed LO the Beauxbatons students upon their arrival at Hogwarts.
-- Hagrid becoming so distracted by Madame Max.ime when she first speaks to him at the
-high table thal he stabs Professor Flitwick in the hand with fork,
-(In the Madame Maxitnc spoke 01' (he care and handling Of the winged horses to
-Dumbledore +'hen Hagrid was not present.)
+broomsticks.
+- The Weasleys' tent (a single one rather than a pair as in the book) has already been set up before their arrival, rather than the party having to set it up themselves.
+- The Weasleys are not in the top box with Fudge and the Malfoys in the film.
+- Ginny rather than Hermione or Harry asks who Krum is when he takes the field at the World Cup.
+- The players rather than the mascots perform the pre-match entertainment at the World Cup. The Irish side displays a glittering, animated leprechaun image in the sky rather than glittering shamrock formed by leprechauns as in the book.
+- Fudge rather than Bagman gives the speech at the World Cup.
+- Since Bill. Charlie, and Percy are not the World Cup, Arthur doesnt suggest that the older members of the family help the Ministry against the Death Eaters, but instead tries to get them all to a Portkey to get out right away.
+- Harry is separated from the entire party and knocked out during the post-match riot; his wand is never stolen.
+- Molly giving the boys their new dress robes. Instead, Ron receives his by post (apparently not even owl post).
+- The Prophet article about the riot is introduced by a copy being read by Hermione on the Hogwarts Express rather than by Molly on the morning after the match.
+- Cho is first encountered in the story on the Hogwarts Express rather than on the World Cup campgrounds.
+- Harry writes the first letter to Sirius only after the riot and prodding by Hermione, rather than immediately after the pre-match dream and on his own initiative. Consequently Hedwig is with him on the Hogwarts Express rather than off delivering his letter.
+- The Hognuts students watch the arrival of their guests from the windows of the Great Hall on the first day of term rather than from out on the grounds just before Halloween as in the book.
+- The students from Beauxbatons are introduced as "ladies", implying that there are no boys among them, although al least two Beauxbatons boys werc present in GF23.
+- The dancing and other seductive behaviours of the Veela from the World Cup from the book are transposed to the Beauxbatons students upon their arrival at Hogwarts.
+- Hagrid becoming so distracted by Madame Maxime when she first speaks to him at the high table that he stabs Professor Flitwick in the hand with fork. (In the book, Madame Maxime spoke of the care and handling of the winged horses to
+Dumbledore when Hagrid was not present.)
+
 - To demonstrate his ability to see ouL of the back ofhis head during his first class, the fake
 Moody chastises Seamus Finnigan fot sticking chewing gun under his desk rather than
 Lavender holding her horoscope under her 10 show to Parvati Palil,
@@ -151,6 +134,7 @@ word and a hug. rather than drilling Harry in the Summoning Charm all night befo
 This leads to developing Krum a little more, when he tells off Skeeter after her
 subsequent photograph-taking ambush,
 - waiting until after 'he's attacked by Horntail to Surnmon his broom
+
 - I'he breaking of the Horntail's chain and her pursuit of Viaryr This tics in 'åith the
 elimination or the teal eggs from the in the book she not as nesting mother
 would have them unprotected.
