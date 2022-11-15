@@ -14,10 +14,10 @@ This is a list of changes made from the authorless books to the films. The lists
     - [HP Lexicon - Scanned Printing](book-2.pdf)
 - [Prisoner of Azkaban](book-3.md)
   - Source:
-    - [HP Lexicon - Scanned Printing](book-3.md). Printed before it was removed. No Internet Archive Page exists.
-- [Goblet of Fire
+    - [HP Lexicon - Scanned Printing](book-3.pdf). Printed before it was removed. No Internet Archive Page exists.
+- [Goblet of Fire](book-4.md)
   - Source:
-    - [HP Lexicon - Scanned Printing](book-4.md). Printed before it was removed. No Internet Archive Page exists.
+    - [HP Lexicon - Scanned Printing](book-4.pdf). Printed before it was removed. No Internet Archive Page exists.
 - [Order of the Phoenix](book-5.md) (Unwritten)
 - [Half-Blood Prince](book-6.md) (Unwritten)
 - [Deathly Hallows](book-7.md) (Unwritten)
