@@ -353,28 +353,24 @@ Beauxbatons at Christmas.
 - Of Goshawk's Guide 10 Herbolt..vgp• (the åi.i1h0f is e;anon., the book isn't,
 least so far), to a wizard in Nepal who's growing gravity-resistant trees, and to a debate
 among herbolpgists about effectiveness of Gillyweed in fresh versus salt waterw
-- Gabrielle Delacour's inclusion among the Beauxbatot'ts students (she appears among them
-at the end); the attack after the rescue or the hostages; Hermione kissing Harry afierward.
-- spells;
+
+- Gabrielle Delacour's inclusion among the Beauxbaton's students (she appears among them at the end); the attack after the rescue of the hostages; Hermione kissing Harry afterward.
+- Spells:
   - Aseendio.
-  - fake Moody's non-verbal dcxy-elosing spell.
-  - o (which is much showier than jusl wand sparks).
-  - Dumbledore's use of a non-verbal Sonorous. after the second task.
-- levitating toast racks in the Great Ilall.
-levitaiing Fooks in the library.
-- The fake MoodYs mention of summer internships at the Ministry (and specifically the
-Department Of Mysteries) after the tusk.
-- "Licorice Snap",
-- cage at the trials in the Pen.5icve.
+  - The fake Moody's non-verbal door-closing spell.
+  - Periculum (which is much showier than just wand sparks).
+  - Dumbledore's use of a non-verbal Sonorous, after the second task.
+- The levitating toast racks in the Great Hall.
+- The levitating books in the library.
+- The fake Moody's mention of summer internships at the Ministry (and specifically the Department of Mysteries) after the second task.
+- "Licorice Snap".
+- The cage at the trials in the Pensieve.
 - Hany's reference to "bubble juice" when questioned about potion ingredients.
-- brass band at the third task, clearly composed of Hogwarts students and conducted
-by Flitwick.
-- The cheerleading by the Other Beauxhatons girls at the third task, Crabbe having Krum's
-name painted on his forehead„
-- self-sealing entrance of the maze, and the "losing yourself' aspects thereofl
-- l*'rotll the gravestone:,
-  - Torn Riddle's birth year of 1905 and death year of 1943.
-  - Mr Riddle's birth year of 1880, death year 1943, and given name of Thomas,
-  - Mrs Riddle's birth year of 883, death year of 1943, and given name of Mary.
-- Dumbledore's remarks on how much he disliked the eunains in Harrys dormitory when
-he uas a student, and that hc set them on fire winen he himselfuas a fourth year
+- The brass band at the third task, clearly composed of Hogwarts students and conducted by Flitwick.
+- The cheerleading by the other Beauxbatons girls at the third task, Crabbe having Krum's name painted on his forehead.
+- The self-sealing entrance of the maze, and the "losing yourself" aspects thereof.
+- From the gravestone:
+  - Tom Riddle's birth year of 1905 and death year of 1943.
+  - Mr. Riddle's birth year of 1880, death year 1943, and given name of Thomas.
+  - Mrs. Riddle's birth year of 1883, death year of 1943, and given name of Mary.
+- Dumbledore's remarks on how much he disliked the curtains in Harrys dormitory when he was a student, and that he set them on fire when he himself was a fourth year.
