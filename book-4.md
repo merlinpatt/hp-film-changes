@@ -235,48 +235,23 @@ hops in to make him n:jore comfortable until he can be transferred to the hospit
 
 ## Switching Spells
 
-- See Film I Switching Spells regarding the cast.
-- Crouch junior in lhe film has dark rather Lha:n ytruw-coloured hairn
-- Owls arc shown carrying letters in their beaks rather than having them bound to a leg as
-in the honks Clhat'd b: much harder on an owl during a long journey„)
-- The winged horses pul ling the Beauxbatons eaniage don't appear to have pelomino
-coiouring (Which would be gold body colouring swhile manes and tails), but instead
-the inverse orthat colouring. They dont seem to be the size Of elephants as in canon, but
-iths very hard to tell sinec they agenit shown close to anything that would put them in a
-reliable perspectiver Judgmg from the scene in which they arrive at Ilogwarts„ there are
-nine (three on the left, three on the right* two in the middle front and hock) rather than
-twelve.
-- The Beauxbatons carriage on close examination appears to be powder-blue (which agrees
-with canon), although the red and gold trim makes it diffcult to see thi5 when the
-carriage is motion,
-- Mildnmc Maxime in film red rather than black hair, doesnt arrive wearing elegant
-black satin, and is notiecably taller than Hagrid rather than being within an inch or so of
-his height.
-- Dumbfedor€5 beard appears more grey white, effect may he :rurtly due 10 the
-fact thal he wears grey robes rather than deep green robes at the Welcoming Feast at
-the seiection Of champions, See Conjuring
-- The Singing of the I-loggvarts schM'l song (which was omitted from the first film) was
-filmed, though deleted, for this It's much more polished on film than the singing o C'
-it was depieied in (In the finished sung Ihe
-Of Crouch senior'* body)
-- size Of the Goblet Of Fire and the manner Of its presentatiom in the book,
-Dumbledore simply reached into the casket and pulled it out, and the flames were the
-only unjlsual aspect of its appearance.
-- 'Ill,e Owlery is shown as pajt Of a tower detached from the main buiEding Of the castle
-rather than in West Tower.
-- Magical Water Plants Ofthe Mediterranean is switched for Magical Water Plants Offhe
-Highland Lochs (which far doesn't exist in canon)v This is part otuxiting Out the
-house-etves• role, which involved giving Neville the role of informing Haro- about the
-properties of Gillyweed.
-- Seamus Finnigan rather than Neville is depieqed as being accident-prone, though with a
-different flavour (he says he thinks fire is pretty fascinating, rather than heing depressed
-by his difficulties).
-- The golden egg is small enough to be held easily in one hand, and doesn't uppear empty
-open and sieging.
-- Placing Padma Pat:il in Gryffindor with her sister in Gryffndor common room
-with het sister rather than her sister being with Lavender Brown when Harry thinks of
-asking them), and thc fact that both sisters ueat pink to the YUIC 1 instead Of one
-wearing pink and the other tutuuoise.
+- See Film 1 Switching Spells regarding the cast.
+- Crouch junior in lhe film has dark rather than straw-coloured hair.
+- Owls are shown carrying letters in their beaks rather than having them bound to a leg as
+in the books. (That'd be much harder on an owl during a long journey...)
+- The winged horses pulling the Beauxbatons carriage don't appear to have palomino colouring (which would be gold body colouring with white manes and tails), but instead the inverse of that colouring. They don't seem to be the size of elephants as in canon, but it's very hard to tell since they aren't shown close to anything that would put them in a reliable perspectiver. Judging from the scene in which they arrive at Hogwarts, there are nine (three on the left, three on the right, two in the middle front and back) rather than twelve.
+- The Beauxbatons carriage on close examination appears to be powder-blue (which agrees with canon), although the red and gold trim makes it diffcult to see this when the carriage is motion.
+- Madame Maxime in the film has red rather than black hair, doesn't arrive wearing elegant black satin, and is noticeably taller than Hagrid rather than being within an inch or so of his height.
+- Dumbledore's beard appears more grey than white. This effect may be partly due to the
+fact that he wears grey robes rather than deep green robes at the Welcoming Feast and at
+the seiection of champions. See also Conjuring Spells.
+- The singing of the Hogwarts school song (which was omitted from the first film) was filmed, though deleted, for this film. It's much more polished on film than the singing of it was depicted in PS7. (In the finished film, it's sung impromptu just before the discovery of Crouch senior's body.)
+- The size of the Goblet of Fire and the manner of its presentation. In the book, Dumbledore simply reached into the casket and pulled it out, and the flames were the only unusual aspect of its appearance.
+- The Owlery is shown as part of a tower detached from the main building of the castle rather than in West Tower.
+- Magical Water Plants of the Mediterranean is switched for Magical Water Plants of the Highland Lochs (which so far doesn't exist in canon). This is part writing out the house-elves' role, which involved giving Neville the role of informing Harry about the properties of Gillyweed.
+- Seamus Finnigan rather than Neville is depicted as being accident-prone, though with a different flavour (he says he thinks fire is pretty fascinating, rather than being depressed by his difficulties).
+- The golden egg is small enough to be held easily in one hand, and doesn't appear empty when open and singing.
+- Placing Padma Patil in Gryffindor with her sister (she's in Gryffindor common room with her sister rather than her sister being with Lavender Brown when Harry thinks of asking them), and the fact that both sisters wear pink to the Yule Ball instead of one wearing pink and the other turquoise.
 - Hermione wears pink to the Yule Bull rather than bluc as in the book, (The pink was
 worn by Pansy Parkinson, Draco Malfoy's in the book.)
 - Cedric'sglue isn't given immediately after the Yule Ball; he waits until two days before
@@ -293,67 +268,50 @@ portrait, and she's awake during Harry's visit.
 Additions to the movie without direct canon backing:
 
 - Hermione (and Harry) occasionally calling Ron "Ronald".
-- Both Iteratione and Ginny look rather impressed with Cedric when he is first introduced.
-- The Quidditch World Cup campground in the film is near the oceanw
-- Krum indulges in some spectacularly dünger0ires pre-match stunt flying at the Wond Cup,
-- Ron's nassionue post-mateh praise of (and the accompanying teesing by the other
-kids).
-- The detail of the Death Eaters' m35kR looking like skulls tand Voldemort ripping them off
-at his rebirthing
-- The caet on the sail Of the Durmstmng ship und it* dragon figurehead.
-- The hair grip on Dumbledore!s beard and the rings on his hands.
-- Filch's interruption of Dumbledore's start-or-term speech.
-- the visiting Durmstrung students being malc.
-- The acrobatics ot•thc Durmstrang students upon their arrival Cand flashy tire spell the
-last performer casts befog* karkarofTs arrival).
+- Both Hermione and Ginny look rather impressed with Cedric when he is first introduced.
+- The Quidditch World Cup campground in the film is near the ocean.
+- Krum indulges in some spectacularly dangerous pre-match stunt flying at the World Cup.
+- Ron's passionate post-mateh praise of Krum (and the accompanying teasing by the other kids).
+- The detail of the Death Eaters' masks looking like skulls (and Voldemort ripping them off at his rebirthing party)
+- The coat of arms on the sail of the Durmstrang ship and its dragon figurehead.
+- The hair grip on Dumbledore's beard and the rings on his hands.
+- Filch's interruption of Dumbledore's start-of-term speech.
+- All the visiting Durmstrang students being male.
+- The acrobatics of the Durmstrang students upon their arrival (and the flashy fire spell the
+last performer casts before Karkaroff's arrival).
 - The fake Moody casting a spell at the enchanted ceiling during his arrival.
-- The Weasley twins' tendency to speak in unison, tn books, they often complete one
-another's sentences. though
-- The fake Moody yelling that he can hear across classrooms, and throwing chalk to
-emphasize the point.
-- The fake Moodfs reference to the Cruciatits Curse as the "'tortu.te
-- The stained glass windosvs in parts of the castle. (The rain making the figures thctcin
-look as though theyre weeping is a cool effect.)
-- The Aye Line is shown as a visible ring on the tloor around the Goblet Of Fire.
+- The Weasley twins' tendency to speak in unison. In the books, they often complete one another's sentences, though.
+- The fake Moody yelling that he can hear across classrooms, and throwing chalk to emphasize the point.
+- The fake Moody's reference to the Cruciatus Curse as the "torture curse".
+- The stained glass windows in parts of the castle. (The rain making the figures therein look as though they're weeping is a cool effect.)
+- The Age Line is shown as a visible ring on the floor around the Goblet of Fire.
 - The self-opening doors to the antechamber the Great Hall.
 - The depiction of the antechamber off the Great Hall as the trophy room.
-- Durnbledore•s use of his Pcusievc during his post-champion-selection conference Wilh the
-teachers. McGonagall's combative attitude toward the rules, end Snape's suggestion that
-they let maters unföld jör the timc Iring.
-- The '(Glossy: Silver Polish" in the broom cupboard during Rita's first interview, and the
-"Ilogwarts field supplies" crates in the champions tent during the first task
-- The levitation pmpczties of the Quick-quotes quill (although in the books it does write by
-itself).
-- Dumbledore's instruction to the fake Moody 10 watch over Harry hut not to let him know
-(on the theory that knowing that he had someone watching over him would frighten
-- Harry hanging out with Neville by the take, and Ginnys presence alongside I-lermione.
-- Hagrid's comeback to Harrys remark about his with a remark about Harry's.
-- Dropping the ferret down Crabbe's trousers,
-- The fake Moody sticking out his tongue at McGonagall after little lecture On
-inappropriate punishments, (In the book, he dragged Draco off to speak with his Head of
-House white McGonagall remained behind; in the film. she leaves and hc stays,)
-- Ille fake Moody removing his artificial leg to get comfortable.
-- Weaslcy running a book on the first task and on the task,
-- The Weasley twins egging on the Horntail,
-- The cannon at the Triwizard tasks
-- portraits in the Gryffindor common room joining in thc applause for llary, and
-reacting to the golden egg,
-- Snape hitting the kids who talk 'hen they're supposed to be studying'
-- Nigel, the young kid who delivers Ron's dress robes. Ginny's remarks that theyre ghastly
-and she wouldn't umrthem, and Ron's reference to 'Great Aunt Tessie",
-- Dancing lessons for Gryffindor house (including Neville's subsequent practicing) and the
-sling on Hurry's therein.
-- The ice sculptures at Yule Boll, decor is reminiscent of Fleur's description of
-Beauxbatons at Christmas.
+- Dumbledore's use of his Pensieve during his post-champion-selection conference with the teachers. McGonagall's combative attitude toward the rules, and Snape's suggestion that they let matters unfold for the time being.
+- The "Glossy's Silver Polish" in the broom cupboard during Rita's first interview, and the
+"Hogwarts field supplies" crates in the champions' tent during the first task
+- The levitation properties of the Quick-Quotes quill (although in the books it does write by itself).
+- Dumbledore's instruction to the fake Moody to watch over Harry but not to let him know (on the theory that knowing that he had someone watching over him would frighten Harry)
+- Harry hanging out with Neville by the lake, and Ginny's presence alongside Hermione.
+- Hagrid's comeback to Harry's remark about his hair with a remark about Harry's.
+- Dropping the ferret down Crabbe's trousers.
+- The fake Moody sticking out his tongue at McGonagall after her little lecture On inappropriate punishments. (In the book, he dragged Draco off to speak with his Head of House while McGonagall remained behind; in the film. she leaves and hc stays,)
+- The fake Moody removing his artificial leg to get comfortable.
+- The Weasley twins running a book on the first task and on the second task.
+- The Weasley twins egging on the Horntail.
+- The cannon at the Triwizard tasks.
+- The portraits in the Gryffindor common room joining in the applause for Harry, and reacting to the golden egg.
+- Snape hitting the kids who talk when they're supposed to be studying.
+- Nigel, the young kid who delivers Ron's dress robes, Ginny's remarks that theyre ghastly
+and she wouldn't wear them, and Ron's reference to "Great Aunt Tessie",
+- Dancing lessons for Gryffindor house (including Neville's subsequent practicing) and the sling on Harry's arm therein.
+- The ice sculptures at the Yule Ball. The decor is reminiscent of Fleur's description of Beauxbatons at Christmas.
 - The carriages at the Yule Ball in the deleted scenes.
 - Filch dancing with Mrs. Norris.
-- 'Ille orchestra conducted by Flitwick
-- Myrtle's remarks about Polyjuice Potion; and her diving into the bath with Harry.
+- The orchestra conducted by Flitwick.
+- Myrtle's remarks about Polyjuice Potion, and her diving into the bath with Harry.
 - References to the lake as the Black Lake.
-- Of Goshawk's Guide 10 Herbolt..vgp• (the åi.i1h0f is e;anon., the book isn't,
-least so far), to a wizard in Nepal who's growing gravity-resistant trees, and to a debate
-among herbolpgists about effectiveness of Gillyweed in fresh versus salt waterw
-
+- Neville's mentions of Goshawk's Guide to Herbology (the author is canon, the book isn't, at least so far), to a wizard in Nepal who's growing gravity-resistant trees, and to a debate among herbologists about the effectiveness of Gillyweed in fresh versus salt water.
 - Gabrielle Delacour's inclusion among the Beauxbaton's students (she appears among them at the end); the attack after the rescue of the hostages; Hermione kissing Harry afterward.
 - Spells:
   - Aseendio.
